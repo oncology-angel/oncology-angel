@@ -9,7 +9,7 @@
 <p align="center"> <em><strong>fictkin of many characters ♡</strong></em>
 <p align="center"> doubles <em><strong>iwec</strong></em> or <em><strong>dni</strong></em> !! </p>
   <p align="center"> <strong>very</strong> selective <em>thanos</em> yume !! ^_^ </p> 
-<p align="center">pony town's james wilson <a href="https://github.com/pt-walk-of-fame">(@pt-walk-of-fame) </a> . thank you whoever nominated me ! </p>
+<p align="center">pony town's james wilson <a href="https://github.com/pt-walk-of-fame">𑣲 </a> .</p>
 <p align="center"><img src="https://github.com/user-attachments/assets/1ef2220f-d5ba-4bc6-aac8-22a978f9d5f0" width="700"> </p>
 
 <p align="center"> <img src= "https://github.com/user-attachments/assets/b4c228ae-6b04-448d-bdc4-90384825f17c" width="25">  <img src= "https://github.com/user-attachments/assets/a9a288f1-8acc-4a9f-b717-57f396c061b4" width="30">  <img src= "https://github.com/user-attachments/assets/4982076b-a939-4a7f-83de-ab82ebdd3a94" width="30"> </p>
